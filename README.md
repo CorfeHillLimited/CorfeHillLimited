@@ -9,7 +9,7 @@
 ## Отзывы о Corfe Hill Limited: взгляд изнутри
 
 Клиенты **Corfe Hill Limited** — это трейдеры из разных уголков мира: от Евросоюза до Юго-Восточной Азии. Брокер работает через многочисленные офисы, предоставляя стабильный доступ к финансовым рынкам как трейдерам-новичкам, так и их опытным коллегам. Отзывы о Corfe Hill Limited можно найти на популярных веб-платформах:
-* Blogspot,
+* [Blogspot](https://corfe-hill-limited.blogspot.com/2025/06/corfe-hill-limited.html),
 * [HackMD](https://hackmd.io/@CorfeHillLimited/BkI7WbjMxl),
 * [Medium](https://medium.com/@joannelinda781/corfe-hill-limited-%D0%BE%D1%82%D0%B7%D1%8B%D0%B2%D1%8B-%D0%B4%D0%B5%D0%B9%D1%81%D1%82%D0%B2%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D0%BE-%D1%87%D0%B5%D1%81%D1%82%D0%BD%D1%8B%D0%B9-%D0%B1%D1%80%D0%BE%D0%BA%D0%B5%D1%80-b9959efc7aa0).
 
